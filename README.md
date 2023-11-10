@@ -12,7 +12,7 @@
      
 * ❤️ Hobbies: 
   * Stock and Crypto Markets 📈 
-  * Sport ⚽🥋🏈🏀 
+  * Sport ⚽🥋🎾
   * Travel ✈     
 
 # Languages 💻
