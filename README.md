@@ -5,10 +5,10 @@
 * 📌 French Student living in Tel Aviv, Israel   
 * 📫 Email: ilan.souffir@hotmail.com 
 * 👄 I speak :
-  *  French 
-  *  English
-  *  Hebrew 
-  *  Spanish   
+  *  French ⭐⭐⭐⭐⭐
+  *  English ⭐⭐⭐⭐
+  *  Hebrew ⭐⭐⭐⭐
+  *  Spanish ⭐⭐⭐
      
 * ❤️ Hobbies: 
   * Stock and Crypto Markets 📈 
