@@ -24,5 +24,10 @@
   <img align="left" width=10% src = "https://user-images.githubusercontent.com/55143087/140664080-db347985-c611-4f46-bd2c-3cf089f806c5.png"/>
    </p>
 
+   Languages and Tools:
+Python Java PHP SQL Android C++ C Git Firebase LaTeX Adobe Photoshop
+
+ 
+
     
 
